@@ -1,1 +1,1 @@
-# Solar-System
+The Solar System[a] is the gravitationally bound system comprising the Sun and the objects that orbit it, either directly or indirectly.[b] Of those objects that orbit the Sun directly, the largest eight are the planets,[c] with the remainder being significantly smaller objects, such as dwarf planets and small Solar System bodies. Of the objects that orbit the Sun indirectly, the moons, two are larger than the smallest planet, Mercury.
